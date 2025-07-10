@@ -1,0 +1,2 @@
+# Dynamic-Rise-
+Dynamic Rise™
